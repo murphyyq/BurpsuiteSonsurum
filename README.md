@@ -2,6 +2,14 @@
 # BurpSuite-Pro-2022-Cracked
 BurpSuite Pro 2022 Cracked 
 
+
+crackleme videosu
+
+https://www.youtube.com/watch?v=fXUjC-drxt0
+
+mantık aynı bütün sürümler için yapabilirsiniz bu taktiği hepsi için çalışır
+
+
 windows java indirmek için
 
 https://www.oracle.com/java/technologies/downloads/#jdk17-windows
